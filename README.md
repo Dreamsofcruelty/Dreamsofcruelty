@@ -7,6 +7,8 @@
 
 ㅤㅤㅤ~~ㅤㅤ~~ㅤ⠀⠀⠀BYI:  don't overuse tone tags around me 🙏, i say slurs i can reclaim, i make a lot of hitler/ww2/axis (etc) jokes, don't associate me with communities i'm in that have a bad reputation please, i sometimes speak before i think
 
+ㅤㅤㅤ~~ㅤㅤ~~ㅤ⠀⠀⠀EXT. DNI: basic dni criteria, ACTUAL nazis, those weird ass von krieger yumeshippers 😭, spyscout shippers (TF2), vivziepop supporters, comship/proship/doveship
+
 
 [![b096b4f69854c48c375538b11986d7e6faa3d209.gif](https://i.postimg.cc/L55m9g5V/b096b4f69854c48c375538b11986d7e6faa3d209.gif)](https://postimg.cc/Vrxx46jS)
 [![0bf065a7c8744884c60cd87c4ebe95c2895fa36a.gif](https://i.postimg.cc/6QVWYNFC/0bf065a7c8744884c60cd87c4ebe95c2895fa36a.gif)](https://postimg.cc/QBtZdv8M)
