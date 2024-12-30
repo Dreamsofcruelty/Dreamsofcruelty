@@ -24,7 +24,6 @@ STAMP/BLINKIE STASH!
 [![divorce.gif](https://i.postimg.cc/MHnXsF7x/divorce.gif)](https://postimg.cc/JHW10KYd)
 [![be6c030f9529a20eaa7f67f9976b62f0b4c14d5e.gif](https://i.postimg.cc/s2L3dmPK/be6c030f9529a20eaa7f67f9976b62f0b4c14d5e.gif)](https://postimg.cc/7CSFSgWT)
 [![2efc8dcfebd327d9e609a96bfb76e34e4515836a.jpg](https://i.postimg.cc/15SsQf6x/2efc8dcfebd327d9e609a96bfb76e34e4515836a.jpg)](https://postimg.cc/hh2H84pM)
-[![203de8023c3321049caf05c90e0b45ef6ff1acd5.png](https://i.postimg.cc/KcNs1zwh/203de8023c3321049caf05c90e0b45ef6ff1acd5.png)](https://postimg.cc/w31kP69w)
 [![bb27f0557cfd699b30b2187e5ef77e52bc8d239b.png](https://i.postimg.cc/1XrxtrFk/bb27f0557cfd699b30b2187e5ef77e52bc8d239b.png)](https://postimg.cc/hQvZZxps) 
 [![jojostamp.gif](https://i.postimg.cc/Y9NDfqSg/jojostamp.gif)](https://postimg.cc/MMTYzwVK)
 [![d806b23365f6d922fb0c93f0fa91fe38e90afa29.gif](https://i.postimg.cc/rwm6VWwH/d806b23365f6d922fb0c93f0fa91fe38e90afa29.gif)](https://postimg.cc/PPBVKCZb)
