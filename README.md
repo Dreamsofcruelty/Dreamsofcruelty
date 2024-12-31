@@ -34,7 +34,6 @@ STAMP/BLINKIE STASH!
 [![tumblr-purr70-DWAQ1xzned5o1-250.gif](https://i.postimg.cc/9Q5zp1r5/tumblr-purr70-DWAQ1xzned5o1-250.gif)](https://postimg.cc/xc50jvvt)
 [![8e0dc74fe71bbb0484c61f4c3a9ee4f58e2ca2f3.gif](https://i.postimg.cc/Sx6Rt8MX/8e0dc74fe71bbb0484c61f4c3a9ee4f58e2ca2f3.gif)](https://postimg.cc/215C11Tm)
 [![4370f7a8ad618d90ae0b6a725e88f58a47e50708.gif](https://i.postimg.cc/KYQzm2Qx/4370f7a8ad618d90ae0b6a725e88f58a47e50708.gif)](https://postimg.cc/hJzg0NH5)
-[![cb22687d4876d7a4941573d6a4d03cd8965cf987.gif](https://i.postimg.cc/SsvxzfwP/cb22687d4876d7a4941573d6a4d03cd8965cf987.gif)](https://postimg.cc/2bnDshjd)
 [![3be3af239697dece8397fb938e35ee295d98a16f.gif](https://i.postimg.cc/8z8WDd4p/3be3af239697dece8397fb938e35ee295d98a16f.gif)](https://postimg.cc/BXgtBKRk)
 [![46ad50517e94125d79b6b195318a6e6864f95733.gif](https://i.postimg.cc/gjWrXpSn/46ad50517e94125d79b6b195318a6e6864f95733.gif)](https://postimg.cc/XGsnmR0b)
 [![f64d41b18319d760288668c45c5db8196851dce5.gif](https://i.postimg.cc/xCHc18Pw/f64d41b18319d760288668c45c5db8196851dce5.gif)](https://postimg.cc/9RmWxWKb)
