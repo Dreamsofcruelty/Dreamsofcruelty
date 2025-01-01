@@ -3,7 +3,7 @@
 
 ꒷︶꒷꒥꒷ ⠀「⠀[![gun.gif](https://i.postimg.cc/MHS1gxGx/gun.gif)](https://postimg.cc/R6g3nkfb)⠀」HI, I'M MARGO (Or Pyro) !! . . 
 
-ㅤㅤㅤ~~ㅤㅤ~~ㅤ⠀⠀⠀I'm really into: WW2 in Europe (European history/wars in general), the military, soldier uniforms, the long long holiday, tf2, object shows (mainly CFMOT), jojo rabbit, gnb, countryhuman designs (not into actual countryhumans if that makes sense), Museum:tskilitr, lapfox trax, hetalia and way more!!! just ask me
+ㅤㅤㅤ~~ㅤㅤ~~ㅤ⠀⠀⠀I'm really into: WW2 in Europe (European history/wars in general), the military, soldier uniforms, the long long holiday, tf2, object shows (mainly CFMOT), jojo rabbit, gnb, countryhuman designs (not into actual countryhumans if that makes sense), Museum:tskilitr, lapfox trax, tyler the creator, hetalia and way more!!! just ask me
 
 ㅤㅤㅤ~~ㅤㅤ~~ㅤ⠀⠀⠀BYI:  don't overuse tone tags around me 🙏, i say slurs i can reclaim, i make a lot of hitler/ww2/axis (etc) jokes, don't associate me with communities i'm in that have a bad reputation please, i sometimes speak before i think
 
