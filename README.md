@@ -43,7 +43,6 @@ STAMP/BLINKIE STASH!
 [![d1jupu1-ab140be8-526e-4a56-a167-fe96ae92343f.png](https://i.postimg.cc/Hx5M9kCd/d1jupu1-ab140be8-526e-4a56-a167-fe96ae92343f.png)](https://postimg.cc/348WK7Rc)
 [![d88mlu8-558f1506-f11c-4f92-83ed-acfd34ba8c9c.png](https://i.postimg.cc/fb1Xd0p8/d88mlu8-558f1506-f11c-4f92-83ed-acfd34ba8c9c.png)](https://postimg.cc/nsYCbMHm)
 [![dfq36e2-a30d6c54-6d94-4162-9acd-67459791a495.png](https://i.postimg.cc/hv17NZjY/dfq36e2-a30d6c54-6d94-4162-9acd-67459791a495.png)](https://postimg.cc/gLrJZD3y)
-[![dft4fj1-b2200acf-8820-48cd-ba71-004ed984bbed.gif](https://i.postimg.cc/5yVC7Wxv/dft4fj1-b2200acf-8820-48cd-ba71-004ed984bbed.gif)](https://postimg.cc/xJ6887NT)
 [![dho5cat-82e10ad4-e2ba-4df4-bb1e-ff7fe0c4afef.gif](https://i.postimg.cc/DfrsW0gc/dho5cat-82e10ad4-e2ba-4df4-bb1e-ff7fe0c4afef.gif)](https://postimg.cc/kD5DznLV)
 [![d2vrm7k-2f5524fd-546d-423b-8f73-8412b076742f.png](https://i.postimg.cc/Z5RyDchf/d2vrm7k-2f5524fd-546d-423b-8f73-8412b076742f.png)](https://postimg.cc/gnCJx3jR)
 [![d98mbny-fd67df44-f2b9-4969-b389-60f018f5f11c.gif](https://i.postimg.cc/y8bSqZ17/d98mbny-fd67df44-f2b9-4969-b389-60f018f5f11c.gif)](https://postimg.cc/xXLdMqNZ)
