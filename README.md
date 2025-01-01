@@ -9,6 +9,8 @@
 
 ㅤㅤㅤ~~ㅤㅤ~~ㅤ⠀⠀⠀EXT. DNI: basic dni criteria, ACTUAL nazis, those weird ass von krieger yumeshippers 😭, spyscout shippers (TF2), vivziepop supporters, comship/proship/doveship
 
+ㅤㅤㅤ~~ㅤㅤ~~ㅤ⠀⠀⠀LANGUAGES I SPEAK: Ukrainian, Russian, Polish, English (Learning German and Japanese!!)
+
 
 STAMP/BLINKIE STASH!
 
@@ -34,7 +36,18 @@ STAMP/BLINKIE STASH!
 [![dd8hdcg-dbcc1789-fa77-4cdd-a9c1-644d7f82a328.png](https://i.postimg.cc/NFMpJtJF/dd8hdcg-dbcc1789-fa77-4cdd-a9c1-644d7f82a328.png)](https://postimg.cc/r0B1sBL2)
 [![de1nns2-b3938773-0103-4d87-a374-7daad076826f.png](https://i.postimg.cc/W3s9Zg0M/de1nns2-b3938773-0103-4d87-a374-7daad076826f.png)](https://postimg.cc/GBSJwB72)
 [![drghc3-42afa3c7-f187-430e-971e-837eb9e9e9c2.png](https://i.postimg.cc/mgF6WbbF/drghc3-42afa3c7-f187-430e-971e-837eb9e9e9c2.png)](https://postimg.cc/21rx4NLz)
-[![hetalia-stamp-romano-by-tyley-brittany-d35jk3v-fullview.jpg](https://i.postimg.cc/WzHSxyCn/hetalia-stamp-romano-by-tyley-brittany-d35jk3v-fullview.jpg)](https://postimg.cc/fSYx98wt)
+[![d2fk5iy-889c58dd-8a3b-4c5b-998e-d461380c61b1.gif](https://i.postimg.cc/d03mrF1V/d2fk5iy-889c58dd-8a3b-4c5b-998e-d461380c61b1.gif)](https://postimg.cc/d7Myczrb)
+[![d32oxre-f4ff650d-77fd-43a0-ac8f-09e88e067b69.png](https://i.postimg.cc/zfQwkQbS/d32oxre-f4ff650d-77fd-43a0-ac8f-09e88e067b69.png)](https://postimg.cc/TyrWdCcp)
+[![d4oaaar-40e181d2-afb3-414a-8c1d-b615e6407f6a.png](https://i.postimg.cc/C1fGr4by/d4oaaar-40e181d2-afb3-414a-8c1d-b615e6407f6a.png)](https://postimg.cc/N9B25mNb)
+[![d70zvv9-32959e69-b717-4957-82fa-3c8d638adee4.gif](https://i.postimg.cc/wM8hCsk1/d70zvv9-32959e69-b717-4957-82fa-3c8d638adee4.gif)](https://postimg.cc/gXsXRjQp)
+[![d1jupu1-ab140be8-526e-4a56-a167-fe96ae92343f.png](https://i.postimg.cc/Hx5M9kCd/d1jupu1-ab140be8-526e-4a56-a167-fe96ae92343f.png)](https://postimg.cc/348WK7Rc)
+[![d88mlu8-558f1506-f11c-4f92-83ed-acfd34ba8c9c.png](https://i.postimg.cc/fb1Xd0p8/d88mlu8-558f1506-f11c-4f92-83ed-acfd34ba8c9c.png)](https://postimg.cc/nsYCbMHm)
+[![dfq36e2-a30d6c54-6d94-4162-9acd-67459791a495.png](https://i.postimg.cc/hv17NZjY/dfq36e2-a30d6c54-6d94-4162-9acd-67459791a495.png)](https://postimg.cc/gLrJZD3y)
+[![dft4fj1-b2200acf-8820-48cd-ba71-004ed984bbed.gif](https://i.postimg.cc/5yVC7Wxv/dft4fj1-b2200acf-8820-48cd-ba71-004ed984bbed.gif)](https://postimg.cc/xJ6887NT)
+[![dho5cat-82e10ad4-e2ba-4df4-bb1e-ff7fe0c4afef.gif](https://i.postimg.cc/DfrsW0gc/dho5cat-82e10ad4-e2ba-4df4-bb1e-ff7fe0c4afef.gif)](https://postimg.cc/kD5DznLV)
+[![d2vrm7k-2f5524fd-546d-423b-8f73-8412b076742f.png](https://i.postimg.cc/Z5RyDchf/d2vrm7k-2f5524fd-546d-423b-8f73-8412b076742f.png)](https://postimg.cc/gnCJx3jR)
+[![d98mbny-fd67df44-f2b9-4969-b389-60f018f5f11c.gif](https://i.postimg.cc/y8bSqZ17/d98mbny-fd67df44-f2b9-4969-b389-60f018f5f11c.gif)](https://postimg.cc/xXLdMqNZ)
+
 
 
 
