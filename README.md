@@ -28,6 +28,14 @@ STAMP/BLINKIE STASH!
 [![jojostamp.gif](https://i.postimg.cc/Y9NDfqSg/jojostamp.gif)](https://postimg.cc/MMTYzwVK)
 [![d806b23365f6d922fb0c93f0fa91fe38e90afa29.gif](https://i.postimg.cc/rwm6VWwH/d806b23365f6d922fb0c93f0fa91fe38e90afa29.gif)](https://postimg.cc/PPBVKCZb)
 [![stampfernand.gif](https://i.postimg.cc/J0vXsjWQ/stampfernand.gif)](https://postimg.cc/D4Q0DJ0W)
+[![d16n4ag-b178a648-0f49-4fc8-8973-5203bbe5a506.png](https://i.postimg.cc/W4LY2Q3Y/d16n4ag-b178a648-0f49-4fc8-8973-5203bbe5a506.png)](https://postimg.cc/5XgSgK88)
+[![d20hu0b-90df362f-f885-477b-8254-4417d9e54c58.gif](https://i.postimg.cc/Kcq9KKjM/d20hu0b-90df362f-f885-477b-8254-4417d9e54c58.gif)](https://postimg.cc/Cd8CXxjh)
+[![d426lp1-d2da7723-5536-41f4-a25f-ee294adc3e55.gif](https://i.postimg.cc/bJLm9rR4/d426lp1-d2da7723-5536-41f4-a25f-ee294adc3e55.gif)](https://postimg.cc/dkkRqqp9)
+[![dd8hdcg-dbcc1789-fa77-4cdd-a9c1-644d7f82a328.png](https://i.postimg.cc/NFMpJtJF/dd8hdcg-dbcc1789-fa77-4cdd-a9c1-644d7f82a328.png)](https://postimg.cc/r0B1sBL2)
+[![de1nns2-b3938773-0103-4d87-a374-7daad076826f.png](https://i.postimg.cc/W3s9Zg0M/de1nns2-b3938773-0103-4d87-a374-7daad076826f.png)](https://postimg.cc/GBSJwB72)
+[![drghc3-42afa3c7-f187-430e-971e-837eb9e9e9c2.png](https://i.postimg.cc/mgF6WbbF/drghc3-42afa3c7-f187-430e-971e-837eb9e9e9c2.png)](https://postimg.cc/21rx4NLz)
+[![hetalia-stamp-romano-by-tyley-brittany-d35jk3v-fullview.jpg](https://i.postimg.cc/WzHSxyCn/hetalia-stamp-romano-by-tyley-brittany-d35jk3v-fullview.jpg)](https://postimg.cc/fSYx98wt)
+
 
 
 [![67ebb928dcc9547c01d86700e862c8ca102b81e7.gif](https://i.postimg.cc/RVnNK2CL/67ebb928dcc9547c01d86700e862c8ca102b81e7.gif)](https://postimg.cc/SJkSpTMn)
@@ -40,6 +48,17 @@ STAMP/BLINKIE STASH!
 [![77282d4e7f1d95c5a95b15a3ed404523ad286a7e.gif](https://i.postimg.cc/dVbFtBS0/77282d4e7f1d95c5a95b15a3ed404523ad286a7e.gif)](https://postimg.cc/yDytLFKq)
 [![2cfc347cda4960a7839f3080b8678b8477e1b49e.gif](https://i.postimg.cc/fLKQChW3/2cfc347cda4960a7839f3080b8678b8477e1b49e.gif)](https://postimg.cc/tZYcRwxy)
 [![0d008cc4a1e4f9f0f9dad94503d8682e94f11532.gif](https://i.postimg.cc/ZnstkFd4/0d008cc4a1e4f9f0f9dad94503d8682e94f11532.gif)](https://postimg.cc/wRNbLN2G)
+[![ddczwfy-b60dac23-790f-4bd4-a6b7-8520c845cad8.gif](https://i.postimg.cc/KzV9RzDb/ddczwfy-b60dac23-790f-4bd4-a6b7-8520c845cad8.gif)](https://postimg.cc/G8FPfbfg)
+[![dep0ck0-94277601-c069-4bda-8c9b-31ffe323918f.gif](https://i.postimg.cc/brtmbhmt/dep0ck0-94277601-c069-4bda-8c9b-31ffe323918f.gif)](https://postimg.cc/tn9dQLQq)
+[![dep4p4z-18f20d8e-725e-43f9-be00-6764077fe54a.gif](https://i.postimg.cc/dQkHg2JV/dep4p4z-18f20d8e-725e-43f9-be00-6764077fe54a.gif)](https://postimg.cc/PNHQw8Lg)
+[![dfozhsh-978c634c-e345-4546-b2ec-0a15b8547809.gif](https://i.postimg.cc/nhYw0npK/dfozhsh-978c634c-e345-4546-b2ec-0a15b8547809.gif)](https://postimg.cc/G4tQpwB9)
+[![dftv3vb-7436032f-df13-4563-8e2a-7d862dbf1bd0.gif](https://i.postimg.cc/QM8Yzvd2/dftv3vb-7436032f-df13-4563-8e2a-7d862dbf1bd0.gif)](https://postimg.cc/QFzq945m)
+[![dfvme9k-9d411f88-01f6-4b87-b4b3-520ba0f0f1ff.gif](https://i.postimg.cc/QtV4855S/dfvme9k-9d411f88-01f6-4b87-b4b3-520ba0f0f1ff.gif)](https://postimg.cc/Q9GkSFfW)
+[![dg046ox-22d1e00a-ce5b-4490-ba62-dde61cbeb482.gif](https://i.postimg.cc/Df9jhSzd/dg046ox-22d1e00a-ce5b-4490-ba62-dde61cbeb482.gif)](https://postimg.cc/DmcddyL8)
+[![dg0mdck-a41f26f2-e157-45a7-84f6-be992225e80c.gif](https://i.postimg.cc/TPtNvQyp/dg0mdck-a41f26f2-e157-45a7-84f6-be992225e80c.gif)](https://postimg.cc/VSbWjqW8)
+[![dcgi31n-0f0012eb-8d3a-4e3b-8a69-652c07011439.gif](https://i.postimg.cc/9QJYD0ck/dcgi31n-0f0012eb-8d3a-4e3b-8a69-652c07011439.gif)](https://postimg.cc/BjPKyqL5)
+[![deor1he-fe475102-e0e3-405f-897a-11df3a6400f5.gif](https://i.postimg.cc/T3Rc2gvm/deor1he-fe475102-e0e3-405f-897a-11df3a6400f5.gif)](https://postimg.cc/6ymZY735)
+
 
 
 
