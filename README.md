@@ -7,9 +7,9 @@
 
 ㅤㅤㅤ~~ㅤㅤ~~ㅤ⠀⠀⠀BYI:  don't overuse tone tags around me 🙏, i say slurs i can reclaim, i make a lot of hitler/ww2/axis (etc) jokes (BOoohooo average european), don't associate me with communities i'm in that have a bad reputation please, i sometimes speak before i think
 
-ㅤㅤㅤ~~ㅤㅤ~~ㅤ⠀⠀⠀EXT. DNI: basic dni criteria, ACTUAL nazis, those weird ass von krieger yumeshippers, spyscout shippers (TF2), vivziepop supporters, comship/proship/doveship other than that idrk dont be weird
+ㅤㅤㅤ~~ㅤㅤ~~ㅤ⠀⠀⠀EXT. DNI: basic dni criteria, ACTUAL nazis, those weird ass von krieger yumeshippers, spyscout shippers (TF2), any hetalia incest shipper, vivziepop supporters, comship/proship/doveship other than that idrk dont be weird
 
-ㅤㅤㅤ~~ㅤㅤ~~ㅤ⠀⠀⠀LANGUAGES I SPEAK: Ukrainian, Russian, Polish, English (Learning German and Japanese!!)
+ㅤㅤㅤ~~ㅤㅤ~~ㅤ⠀⠀⠀LANGUAGES I SPEAK: Ukrainian, Russian, Polish, English (Learning German and Japanese!! i'm trying okok)
 
 
 STAMP/BLINKIE STASH!
