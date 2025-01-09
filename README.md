@@ -3,7 +3,7 @@
 
 ꒷︶꒷꒥꒷ ⠀「⠀[![gun.gif](https://i.postimg.cc/MHS1gxGx/gun.gif)](https://postimg.cc/R6g3nkfb)⠀」HI, I'M MARGO (Or Pyro) !! . . 
 
-ㅤㅤㅤ~~ㅤㅤ~~ㅤ⠀⠀⠀ABOUT ME: HI! I'm margo or pyro:-]yeah y I'm from ukraine, christian and was diagnosed with autism, my english isn't perfect I don't i've perfected any of the languages i speak now umm im a minor so dont be a weirdo i think that's common sense yepp iii love my friends and my aweosme bf wren:-]] idk waht else to add here honestly just ask me anything ya want
+ㅤㅤㅤ~~ㅤㅤ~~ㅤ⠀⠀⠀ABOUT ME: HI! I'm margo or pyro:-]yeah y I'm from ukraine, christian and was diagnosed with autism, my english isn't perfect I don't i've perfected any of the languages i speak now umm im a minor so dont be a weirdo i think that's common sense yepp iii love my friends and my aweosme bf wren:-]] i love making friends!!!! pls dont be afraid to talk to me unless im liek having a convo with a friend then dont break into our convo i think uuh idk waht else to add here honestly just ask me anything ya want
 
 ㅤㅤㅤ~~ㅤㅤ~~ㅤ⠀⠀⠀I'm really into: WW2 in Europe (European history/wars in general), the military, studying officer/soldier uniforms, learning international languages, the long long holiday, tf2, object shows (mainly CFMOT and II), jojo rabbit, look who's back, stones for the rampart, gnb, countryhuman designs (not into actual countryhumans if that makes sense), YFM, Museum:tskilitr, fears to fathom, lapfox trax, tyler the creator, hetalia and way more!!! just ask me
 
