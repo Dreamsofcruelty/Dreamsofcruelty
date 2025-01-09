@@ -1,4 +1,7 @@
 ## visit rentry.co/thelonglongholiday !!
+
+![](https://komarev.com/ghpvc/?username=Dreamsofcruelty)
+
 [![image0.gif](https://i.postimg.cc/HLr0yBKG/image0.gif)](https://postimg.cc/kVdtrFqw)
 
 ꒷︶꒷꒥꒷ ⠀「⠀[![gun.gif](https://i.postimg.cc/MHS1gxGx/gun.gif)](https://postimg.cc/R6g3nkfb)⠀」HI, I'M MARGO (Or Pyro) !! . . 
