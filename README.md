@@ -10,7 +10,7 @@
 
 ㅤㅤㅤ~~ㅤㅤ~~ㅤ⠀⠀⠀I'm really into: WW2 in Europe (European history/wars in general), the military, studying officer/soldier uniforms, learning international languages, the long long holiday, tf2, object shows (mainly CFMOT and II), jojo rabbit, look who's back, stones for the rampart, gnb, countryhuman designs (not into actual countryhumans if that makes sense), YFM, Museum:tskilitr, fears to fathom, lapfox trax, tyler the creator, hetalia and way more!!! just ask me
 
-ㅤㅤㅤ~~ㅤㅤ~~ㅤ⠀⠀⠀BYI:  don't overuse tone tags around me 🙏, i say slurs i can reclaim, i make a lot of hitler/ww2/axis (etc) jokes (BOoohooo average european), don't associate me with communities i'm in that have a bad reputation please, i sometimes speak before i think, dont call me a nazi it makes me really uncomfortable (i see you pan stop doing it)
+ㅤㅤㅤ~~ㅤㅤ~~ㅤ⠀⠀⠀BYI:  don't overuse tone tags around me 🙏, i say slurs i can reclaim, i make a lot of hitler/ww2/axis (etc) jokes (BOoohooo average european), don't cover me (aka dont be a jackass) don't associate me with communities i'm in that have a bad reputation please, i sometimes speak before i think, dont call me a nazi it makes me really uncomfortable (i see you pan stop doing it ffs bruh)
 
 ㅤㅤㅤ~~ㅤㅤ~~ㅤ⠀⠀⠀EXT. DNI: basic dni criteria, ACTUAL nazis, those weird ass von krieger yumeshippers, spyscout shippers (TF2), any hetalia incest shipper, vivziepop supporters, comship/proship/doveship other than that idrk dont be weird
 
