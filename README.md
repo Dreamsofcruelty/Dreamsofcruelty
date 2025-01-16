@@ -74,6 +74,7 @@ STAMP/BLINKIE STASH!
 [![dd47co6-8320e8d4-3b5d-4fc0-968b-c080f7d23ff7.png](https://i.postimg.cc/cCY3ycpK/dd47co6-8320e8d4-3b5d-4fc0-968b-c080f7d23ff7.png)](https://postimg.cc/JHr0jj4m)
 [![soldiers-at-war-by-crimsonsaphire-d4ap020-fullview.jpg](https://i.postimg.cc/vB49XyXt/soldiers-at-war-by-crimsonsaphire-d4ap020-fullview.jpg)](https://postimg.cc/sQRvDtkM)
 [![stampbonk.gif](https://i.postimg.cc/BQTFmM5k/stampbonk.gif)](https://postimg.cc/nCLMzKPG)
+[![d9l923y-c82e00f0-43cc-4b27-bd9c-e0e6a1853da0.gif](https://i.postimg.cc/26sG7943/d9l923y-c82e00f0-43cc-4b27-bd9c-e0e6a1853da0.gif)](https://postimg.cc/R6TwMRpz)
 
 
 
