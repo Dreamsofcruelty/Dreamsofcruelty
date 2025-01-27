@@ -2,7 +2,7 @@
 
 ![](https://komarev.com/ghpvc/?username=Dreamsofcruelty)
 
-[![image0.gif](https://i.postimg.cc/SNtqTjWM/image0.gif)](https://postimg.cc/N5TWLsCs)
+[![image0-1.gif](https://i.postimg.cc/BQ8P2YL2/image0-1.gif)](https://postimg.cc/zVrfrkkf)
 
 ꒷︶꒷꒥꒷ ⠀「⠀[![gun.gif](https://i.postimg.cc/MHS1gxGx/gun.gif)](https://postimg.cc/R6g3nkfb)⠀」HI, I'M MARGO (Or Pyro) !! . . 
 
