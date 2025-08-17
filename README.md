@@ -6,7 +6,7 @@ gif might lag LOL vvvvvv
 
 [![image0-1.gif](https://i.postimg.cc/BQ8P2YL2/image0-1.gif)](https://postimg.cc/zVrfrkkf)
 
-꒷︶꒷꒥꒷ ⠀「⠀[![gun.gif](https://i.postimg.cc/MHS1gxGx/gun.gif)](https://postimg.cc/R6g3nkfb)⠀」HI, I'M MARGO (Or Pyro) !! . . 
+꒷︶꒷꒥꒷ ⠀「⠀[![gun.gif](https://i.postimg.cc/MHS1gxGx/gun.gif)](https://postimg.cc/R6g3nkfb)⠀」HI, I'M MARGO (Or Pyro) !!!!!!
 
 ㅤㅤㅤ~~ㅤㅤ~~ㅤ⠀⠀⠀ABOUT ME: HI! I'm margo or pyro:-]I'm from ukraine, christian and was diagnosed with autism, umm im a minor so dont be a weirdo i think that's common sense yepp iii love my friends and my aweosme bf wren:-]] i love making friends!!!! pls dont be afraid to talk to me unless im liek having a convo with a friend then dont break into our convo i think uuh idk waht else to add here honestly just ask me anything ya want
 
