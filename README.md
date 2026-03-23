@@ -19,7 +19,7 @@ history (Mainly European history, WW1/WW2 in Europe and The Napoleonic wars), ve
 
 ㅤㅤㅤ~~ㅤㅤ~~ㅤ⠀⠀⠀LANGUAGES I SPEAK: Ukrainian, Russian, Polish, English (Learning German, French and Japanese!! i'm trying okok)
 
-ㅤㅤㅤ~~ㅤㅤ~~ㅤ⠀⠀⠀If you come from ponytown, don't be afraid to talk to me if I'm alone!! ^^
+ㅤㅤㅤ~~ㅤㅤ~~ㅤ⠀⠀⠀If you come from ponytown, don't be afraid to talk to me if I'm alone!! :-))
 
 
 STAMP/BLINKIE STASH!
