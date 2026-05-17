@@ -8,7 +8,7 @@ gif might lag LOL vvvvvv
 
 ꒷︶꒷꒥꒷ ⠀「⠀[![gun.gif](https://i.postimg.cc/MHS1gxGx/gun.gif)](https://postimg.cc/R6g3nkfb)⠀」HI, I'M MARGO
 
-ㅤㅤㅤ~~ㅤㅤ~~ㅤ⠀⠀⠀ABOUT ME: HI! I'm margo or pyro:-]I'm from ukraine, christian and was diagnosed with autism, umm im a minor so dont be a weirdo i think that's common sense yepp iii love my friends and my aweosme bf wren:-]] i love making friends!!!! pls dont be afraid to talk to me unless im liek having a convo with a friend then dont break into our convo i think uuh idk waht else to add here honestly just ask me anything ya want
+ㅤㅤㅤ~~ㅤㅤ~~ㅤ⠀⠀⠀ABOUT ME: HI! I'm margo or macca:-]I'm from ukraine, christian and was diagnosed with autism, umm im a minor so dont be a weirdo i think that's common sense yepp iii love my friends and my aweosme bf wren:-]] I have extreme social anxiety so please don't expect me to come up and talk to you, or respond... :-( I am so very sorry 
 
 ㅤㅤㅤ~~ㅤㅤ~~ㅤ⠀⠀⠀MY CURRENT SPECIAL INTERESTS ARE: 	
 history (Mainly European history, WW1/WW2 in Europe and The Napoleonic wars), vexillology, etymology, linguistics, military themes, uniformology, 19-20th century fashion, learning internation languages, firearms, reading (mostly non-fiction, history-related books), true crime, writing, collecting records/CDS **VISIT MY STRAWPAGE FOR MY FANDOMS!!!!!!!!!!!**
