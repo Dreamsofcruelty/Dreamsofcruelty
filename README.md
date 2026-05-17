@@ -1,19 +1,17 @@
 [![The-Beatles-A-Hard-Day-s-Night.gif](https://i.postimg.cc/XqRrVTTV/The-Beatles-A-Hard-Day-s-Night.gif)](https://postimg.cc/H8tYzPYK)
 
-꒷︶꒷꒥꒷ ⠀「⠀[![gun.gif](https://i.postimg.cc/MHS1gxGx/gun.gif)](https://postimg.cc/R6g3nkfb)⠀」HI, I'M MARGO
+𝄞 ̣̣̥ ྀི¦ ͜͝⠀ 「⠀[![gun.gif](https://i.postimg.cc/MHS1gxGx/gun.gif)](https://postimg.cc/R6g3nkfb)⠀」HI, I'M MARGO  ℯ۪݃ ◞͡𓈒ֺּׅ۫⠀
 
 ㅤㅤㅤ~~ㅤㅤ~~ㅤ⠀⠀⠀ABOUT ME: HI! I'm margo or macca:-]I'm from ukraine, christian and was diagnosed with autism, umm im a minor so dont be a weirdo i think that's common sense yepp iii love my friends and my aweosme bf wren:-]] I have extreme social anxiety so please don't expect me to come up and talk to you, or respond... :-( I am so very sorry 
 
-ㅤㅤㅤ~~ㅤㅤ~~ㅤ⠀⠀⠀MY CURRENT SPECIAL INTERESTS ARE: 	
+_ _ 　　 ◞ ݃ 　MY CURRENT SPECIAL INTERESTS ARE: 	
 history (Mainly European history, WW1/WW2 in Europe and The Napoleonic wars), vexillology, etymology, linguistics, military themes, uniformology, 19-20th century fashion, learning internation languages, firearms, reading (mostly non-fiction, history-related books), true crime, writing, collecting records/CDS **VISIT MY STRAWPAGE FOR MY FANDOMS!!!!!!!!!!!**
 
-ㅤㅤㅤ~~ㅤㅤ~~ㅤ⠀⠀⠀BYI:  don't overuse tone tags around me (it makes me confused), i say slurs i can reclaim, i make a lot of jokes with historical references, don't cover me please !! (**in ponytown**), don't associate me with communities i'm in that have a bad reputation please, i sometimes speak before i think
+_ _ 　　 ◞ ݃ 　BYI:  don't overuse tone tags around me (it makes me confused), i say slurs i can reclaim, i make a lot of jokes with historical references, don't cover me please !! (**in ponytown**), don't associate me with communities i'm in that have a bad reputation please, i sometimes speak before i think
 
-ㅤㅤㅤ~~ㅤㅤ~~ㅤ⠀⠀⠀DNI: basic dni criteria, -13 or 20+ (unless friend!!), ACTUAL nazis, obsessive Oberst Von Krieger fans (TLLH/LGGV), spyscout shippers (TF2), any hetalia incest shipper, people who claim to have multiple personality disorders without proper research/a proper medical diagnosis, vivziepop supporters, proshippers, 4chan larps, other than that dont be weird lol
+_ _ 　　 ◞ ݃ 　DNI: basic dni criteria, -13 or 20+ (unless friend!!), ACTUAL nazis, obsessive Oberst Von Krieger fans (TLLH/LGGV), spyscout shippers (TF2), any hetalia incest shipper, people who claim to have multiple personality disorders without proper research/a proper medical diagnosis, vivziepop supporters, proshippers, 4chan larps, other than that dont be weird lol
 
-ㅤㅤㅤ~~ㅤㅤ~~ㅤ⠀⠀⠀LANGUAGES I SPEAK: Ukrainian, Russian, Polish, English (Learning German, French and Japanese!! i'm trying okok)
-
-ㅤㅤㅤ~~ㅤㅤ~~ㅤ⠀⠀⠀If you come from ponytown, don't be afraid to talk to me if I'm alone!! :-))
+ㅤ_ _ 　　 ◞ ݃ 　LANGUAGES I SPEAK: Ukrainian, Russian, Polish, English (Learning German, French and Japanese!! i'm trying okok)
 
 
 STAMP/BLINKIE STASH!
